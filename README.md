@@ -18,7 +18,7 @@ Additionally: I'm bisexual, alternative, and a furry! We don't judge here unless
 DNI if: You support MAGA, you're homophobic, you're anti-abortion, you're anti-feminist, or you kin/defend murderers.
   <p align="center"> 
 <p align="center"> 
- <source media=" (prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/6047ff17-d208-4112-9981-f1a1db96d084" width="300">
- <source media=" (prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/6047ff17-d208-4112-9981-f1a1db96d084" width="300">
- <img alt="Profile Banner" src="https://github.com/user-attachments/assets/6047ff17-d208-4112-9981-f1a1db96d084" 
+ <source media=" (prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/6a857c0b-a41b-4b04-a8e7-feebc615273c" width="300">
+ <source media=" (prefers-color-scheme: light)" srcset="https://github.com/user-attachments/assets/6a857c0b-a41b-4b04-a8e7-feebc615273c" width="300">
+ <img alt="Profile Banner" src="https://github.com/user-attachments/assets/6a857c0b-a41b-4b04-a8e7-feebc615273c" 
   </picture width="500">
