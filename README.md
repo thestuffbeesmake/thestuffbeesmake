@@ -7,9 +7,9 @@ Likes: Bees, Bears, Space, History, Chicken Teryaki
    <p align="center"> 
 Hobbies: Writing, Drawing, Sculpting, Painting, Photo Collaging, Gaming
     <p align="center"> 
-Fandoms: Pokémon, Marvel, DC, TMNT, JJBA, Tokyo Mew Mew, Sky: COTL, Legend of Zelda (mainly BOTW + TOTK), The Boys, Transformers (sort of), WWE, Becoming Karl Lagerfeld
+Fandoms: Pokémon, Marvel, DC, TMNT, JJBA, Tokyo Mew Mew, ACNH, Sky: COTL, Legend of Zelda (mainly BOTW + TOTK), The Boys, Transformers (sort of), WWE, Becoming Karl Lagerfeld
      <p align="center"> 
-Favorite Characters: Piers, Gladion, Leon, Baron Helmut Zemo (#THEZemoGirl), Frank Castle, Miguel O'Hara, Batman, Raphael, Dio, Keiichiro Akasaka, Ganondorf, Billy Butcher, Optimus Prime, The Undertaker, Giovanni Vinci, Ludwig Kaiser, Karl Lagerfeld
+Favorite Characters: Piers, Gladion, Leon, Baron Helmut Zemo (#THEZemoGirl), Frank Castle, Miguel O'Hara, Batman, Raphael, Dio, Keiichiro Akasaka, Teddy, Ganondorf, Billy Butcher, Optimus Prime, The Undertaker, Giovanni Vinci, Ludwig Kaiser, Karl Lagerfeld
        <p align="center"> 
    If you're from PonyTown, my main ponies are: Any of the Baron Zemos, Xeminia (Transformers/Robot OC), My IRL, My fursona, Frank Castle, Piers, and Billy Butcher
          <p align="center"> 
