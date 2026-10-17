@@ -18,7 +18,7 @@ Favorite Characters: Piers, Gladion, Leon, Baron Helmut Zemo (#THEZemoGirl), Fra
    <p align="center">
 Additionally: I'm bisexual, alternative, and a furry! We don't judge here unless you're a bad person. 💝 
      <p align="center">       
-DNI if: Basic DNI criteria (You support MAGA, you're homophobic, you're anti-abortion, you're anti-feminist, or you kin/defend murderers, etc.)
+DNI if: You call my ponies "whitewashed" + Basic DNI criteria (You support MAGA, you're homophobic, you're anti-abortion, you're anti-feminist, or you kin/defend murderers, etc.)
   <p align="center"> 
 <p align="center"> 
  <source media=" (prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/6a857c0b-a41b-4b04-a8e7-feebc615273c" width="300">
