@@ -13,9 +13,12 @@ Favorite Characters: Piers, Gladion, Leon, Baron Helmut Zemo (#THEZemoGirl), Fra
        <p align="center"> 
    If you're from PonyTown, my main ponies are: Any of the Baron Zemos, Xeminia (Transformers/Robot OC), My IRL, My fursona, Frank Castle, Piers, and Billy Butcher
          <p align="center"> 
+          Kin List: Piers, Karl Lagerfeld
+         (Note: If you yumeship with any of my favorite characters, I don't really care, just don't bring it to me. If you express hostility towards me over it, you will be blocked.)
+   <p align="center">
 Additionally: I'm bisexual, alternative, and a furry! We don't judge here unless you're a bad person. 💝 
      <p align="center">       
-DNI if: You support MAGA, you're homophobic, you're anti-abortion, you're anti-feminist, or you kin/defend murderers.
+DNI if: Basic DNI criteria (You support MAGA, you're homophobic, you're anti-abortion, you're anti-feminist, or you kin/defend murderers, etc.)
   <p align="center"> 
 <p align="center"> 
  <source media=" (prefers-color-scheme: dark)" srcset="https://github.com/user-attachments/assets/6a857c0b-a41b-4b04-a8e7-feebc615273c" width="300">
